@@ -1,14 +1,18 @@
-milo miles or mj he/him 16yo i love making oc skins rahhhh whisper2int or js sit by me
+ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎　　☆　　₊　 ‎ ‎‎ ‎ ‎ ‎milo miles or mj he/him 16yo i love making oc skins rahhhh whisper2int or js sit by me
 
-dni dsmp fans including if you like anyone who was in dsmp dni okegom fans Satanick likers I hope you end up like kaede from danganronpas execution  john doe game boyfrined to death your boyfrined game karl x climber fans pico x bf shippers stay away from me *throws boiling hot water at you* i dislike alot of things
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎**dni** dsmp fans including if you like anyone who was in dsmp ﹕ okegom fans Satanick likers I hope you end up‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ . ⁀⁀
+  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎like kaede from danganronpas execution ﹕ john doe game ﹕ ‎ ‎boyfrined to death ﹕ your boyfrined game ﹕ karl x  ‎
+  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ✦ .  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
+  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
+     climber ﹕‎pico x bf shippers stay away from me *throws boiling hot water at you* zeno fans keep distance
+     ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎.   ·  * ◠◠ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  unless were  already friends ^_^
+    ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ⟣ ⟡ ⟢
 
 
 
-https://github.com/kunizai/kunizai/assets/122230413/e7c030f5-c6c0-4397-8985-0c246121ab20
 
-^ video contains some jjk spoilers but its a little funny
+![imageedit_1_5272095386](https://github.com/DoppoKannonzaka/kunizai/assets/122230413/cb8dcfcb-3346-4483-9798-78f63f2c1cc3)
 
 
-https://github.com/kunizai/kunizai/assets/122230413/596e993f-ac1f-4e1d-84f3-259f2454b12c
 
-OLD VIDEO FEATURING ME FUNERAL 
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![ezgif com-gif-maker_89](https://github.com/DoppoKannonzaka/kunizai/assets/122230413/a2e97438-5ca0-4354-9106-17a0a1baa29e)![ezgif com-gif-maker_89](https://github.com/DoppoKannonzaka/kunizai/assets/122230413/a2e97438-5ca0-4354-9106-17a0a1baa29e)
